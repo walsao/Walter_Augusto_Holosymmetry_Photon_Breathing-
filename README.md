@@ -3,7 +3,7 @@ Photon breathing dynamics under Walter Augusto’s Holosymmetry Theory — where
 
 🔥 Walter Augusto’s Holosymmetry Photon Breathing Theory
 
-Conceptualized, and proposed by Walter Augusto, 2025.
+Proposed, and conceptualized by Walter Augusto, April 10, 2025.
 
 🌌 Core Idea
 In Holosymmetry, photons are pure exhalations of relational breathing tension —
